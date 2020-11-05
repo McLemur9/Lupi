@@ -1,0 +1,3 @@
+# Lupi
+
+Pikachu está sobrevalorado
